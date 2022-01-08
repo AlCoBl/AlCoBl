@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @AlCoBl
+- 👀 I’m interested in electronics and programing
+- 🌱 I’m currently learning everything
